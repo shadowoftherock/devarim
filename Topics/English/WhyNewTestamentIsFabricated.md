@@ -142,7 +142,7 @@ On this premis, we have a match for the prophesy that Rome will **"think to chan
 ---
 
 ### Footnote:
-There is no concrete evidence that the New Testament was fabricated by the Roman Empire, especially since it has to be done in secret. However, I personally believe it have been organized by Rome, given its political expertise. I also believe that the discovery of early New Testament manuscripts have been orchestrated to provide a foundation for establishing the Roman Catholic Church.
+There is no direct evidence that the New Testament was fabricated by the Roman Empire, especially since it has to be done in secret. However, I personally believe it have been organized by Julius Cesar in Rome, given its political expertise. I also believe that the discovery of early New Testament manuscripts have been orchestrated to provide a foundation for establishing the Roman Catholic Church.
 
 ---
 
