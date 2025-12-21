@@ -11,8 +11,8 @@ from a sincere and humble heart.
 Not by fire alone, but by repentance, gratitude,
 and awe of Your Name.
 
-Purify our thoughts as the incense is pure,
-sanctify our words as its smoke rises straight,
+Purify our thoughts,
+sanctify our words, 
 and draw us nearer to Your presence,
 for You are holy and Your Name is holy.
 

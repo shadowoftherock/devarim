@@ -12,9 +12,8 @@ Hindi sa apoy lamang,
 kundi sa pagsisisi, pasasalamat,
 at pagkatakot sa Iyong Pangalan.
 
-Linisin Mo ang aming mga pag-iisip gaya ng kalinisan ng insenso,
-pakabanalin Mo ang aming mga salita
-habang ang usok nito’y tuwid na umaakyat,
+Linisin Mo ang aming mga pag-iisip, 
+pakabanalin Mo ang aming mga salita, 
 at ilapit Mo kami sa Iyong presensya,
 sapagkat Ikaw ay banal
 at banal ang Iyong Pangalan.
