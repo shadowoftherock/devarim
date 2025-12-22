@@ -11,7 +11,7 @@ Here is a clear and easy-to-follow explanation:
 
 ### 📌 When?
 
-Around **164 BCE** (2nd century before Jesus).
+Around **164 BCE** (3598).
 
 ### 📌 Where?
 
