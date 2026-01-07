@@ -3,11 +3,13 @@
 ### **1. Going to Worship**
 
 * Avoid revealing clothing. 
-* Observe shirts that cover shoulders. Shirts/dress should not be see-through.
-* Observe below-the-knee length skirts/dresses or long pants (not tight / snug or not see-through)
+* Clothing should cover shoulders.
+* Clothing should not be see-through.
+* Clothing should not be tight/snug.
+* Observe below-the-knee length skirts/dresses or long pants.
 * Avoid torned items. 
 * Avoid T-shirts with offensive slogans, shorts, or ripped jeans.
-* **Accessories & makeup**: Keep it minimal; avoid flashy or distracting jewelry.
+* **Accessories & makeup**: Keep it minimal; avoid flashy or distracting/luxurious jewelry.
 
 ---
 
