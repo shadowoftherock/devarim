@@ -1,3 +1,6 @@
+The Oral Law refers to a body of teachings that explain, interpret, and apply the Written Law (the Torah). Its purpose is to make HaShem’s commandments understandable and livable in real life.
+
+
 The **importance of the Jewish Oral Law** (*Torah She-be‘Al Peh*) for the **Noahide laws** is **foundational rather than optional**. Without the Oral Law, the Seven Laws of Noah would remain vague moral slogans; with it, they become a **coherent, functional legal–ethical system** meant for all humanity.
 
 Below is a clear, layered discussion.
@@ -8,7 +11,7 @@ Below is a clear, layered discussion.
 
 The **Written Torah** mentions the Noahide laws only **implicitly** and **scattered**:
 
-* “God commanded Adam…” (Genesis 2:16)
+* “HaShem commanded Adam…” (Genesis 2:16)
 * Prohibition of bloodshed (Genesis 9:6)
 * Covenant with Noah (Genesis 9)
 
@@ -32,7 +35,7 @@ The **Oral Law answers these questions**.
 
 ## 2. The Oral Law as the Authoritative Interpreter
 
-Jewish tradition holds that God gave **two inseparable revelations** at Sinai:
+Jewish tradition holds that HaShem gave **two inseparable revelations** at Sinai:
 
 * **Written Torah** (text)
 * **Oral Torah** (interpretation, method, application)
@@ -102,7 +105,7 @@ The Oral Law prevents **moral relativism** by rooting Noahide law in **divine in
 
 This is why the Talmud says:
 
-> “A Noahide who accepts the Seven Laws because God commanded them through Moses is a righteous gentile.”
+> “A Noahide who accepts the Seven Laws because HaShem commanded them through Moses is a righteous gentile.”
 > (*Rambam, Hilkhot Melakhim 8:11*)
 
 The command’s **authority** matters as much as its content.
