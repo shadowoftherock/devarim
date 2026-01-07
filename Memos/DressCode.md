@@ -29,4 +29,6 @@
 
 * Avoid wearing revealing clothing such as one-piece or two-piece swimsuits, briefs, or other attire that exposes too much skin.
 * Wearing a rash guard is recommended.
+* Wearing Mesh-lined swim/surf shorts is recommended. 
+
 ---
