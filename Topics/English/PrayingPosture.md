@@ -1,4 +1,4 @@
-## Kneeling in prayer. 
+## Kneeling in prayer
 
 Appropriate in private space. Here’s a clear way to do it:
 
@@ -16,7 +16,7 @@ Appropriate in private space. Here’s a clear way to do it:
 
 * **Back straight but relaxed:** Avoid hunching.
 * **Head bowed slightly:** Shows humility.
-* **Hands:** Can rest on your thighs, knees, or fold together in front of you.
+* **Hands:** fold together in front of you (not over the head).
 
 ### 4. **Heart and Mind**
 
@@ -24,7 +24,7 @@ Appropriate in private space. Here’s a clear way to do it:
 
 ---
 
-## How to Pray Standing
+## Standing in Prayer
 
 Preferably in gathering. Here’s a clear way to do it:
 
