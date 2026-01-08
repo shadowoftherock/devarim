@@ -1,8 +1,10 @@
-## Kneeling in prayer. Here’s a clear way to do it:
+## Kneeling in prayer. 
+
+Appropriate in private space. Here’s a clear way to do it:
 
 ### 1. **Choose a Quiet Space**
 
-* Prayed facing Jerusalem. Pick a spot where you can focus.
+* Pray facing Jerusalem. Pick a spot where you can focus.
 
 ### 2. **Kneeling Posture**
 
@@ -24,13 +26,16 @@
 
 ## How to Pray Standing
 
+Preferably in gathering. Here’s a clear way to do it:
+
 1. **Feet Position**
 
    * Stand with feet together, grounded, and balanced.
    * Some traditions suggest placing one foot slightly forward for focus and stability.
 
-2. **Body Posture**
+2. **Body Position**
 
+   * Pray facing Jerusalem.
    * Keep your back straight.
    * Head slightly bowed in humility.
 
@@ -41,6 +46,6 @@
 
 4. **Focus and Intent**
 
-   * Prayer isn’t just posture—your heart and mind should be fully engaged.
+   * Your heart and mind should be fully engaged.
 
 ---
