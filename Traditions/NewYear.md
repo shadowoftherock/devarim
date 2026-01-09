@@ -1,3 +1,26 @@
+We will celebrate the New Year in Hebrew, called **Rosh Hashanah** (ראש השנה), which literally means "head of the year."
+
+Rosh Hashanah typically falls in September or early October on the Gregorian calendar, as it occurs on the 1st and 2nd days of Tishrei in the Hebrew calendar. 
+
+**How it's celebrated:**
+
+The holiday is both joyful and solemn, focusing on reflection, prayer, and renewal. 
+
+- **Shofar blowing** - A ram's horn is blown during synagogue services, producing a distinctive sound meant to awaken people spiritually and call them to repentance
+
+- **Prayer services** - Extended worship services and the recitation of "A Blessing for the Turning of the Year"
+
+- **Festive meals** - Families gather for holiday dinners
+
+- **Greetings** - People wish each other "Shanah Tovah" (Good Year) or "L'shanah tovah tikatevu" (May you be inscribed for a good year)
+
+The holiday emphasizes themes of judgment, forgiveness, and spiritual renewal, as tradition holds that HaShem inscribes each person's fate for the coming year during this period.
+
+---
+
+
+
+
 ## **A Blessing for the Turning of the Year**
 
 Blessed are You, HaShem,
