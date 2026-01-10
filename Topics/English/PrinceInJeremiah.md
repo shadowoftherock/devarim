@@ -15,10 +15,7 @@ Jeremiah 30:21 is part of a powerful prophetic oracle known as the "Book of Cons
 - The broader biblical narrative does include promises that Israel's restoration would be a blessing to all nations (Genesis 12:3, Isaiah 49:6)
 
 
-## "A non-Jewish Christian has suggested that Jeremiah 30:21 could be fulfilled within a Christian denomination/group. They're claiming that their leader fits this prophecy because he is 'a prince who is one of them,' just as the verse describes."
-
-
-Ah, I see what's happening here. This is a concerning interpretive move that you're right to question.
+## A non-Jewish Christian has suggested that Jeremiah 30:21 could be fulfilled within their denomination, claiming their leader fits the prophecy as 'a prince who is one of them.
 
 **The problem with this application:**
 
