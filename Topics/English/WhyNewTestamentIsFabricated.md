@@ -145,14 +145,10 @@ On this premis, we have a match for the prophesy that Rome will **"think to chan
 There is no direct evidence that the New Testament was fabricated by the Roman Empire, especially since it has to be done in secret. However, I personally believe it have been organized by the same Romans that created Julian calendar just as the prophecy stated. I also believe that the discovery of early New Testament manuscripts have been orchestrated to provide a foundation for establishing the Roman Catholic Church.
 
 ---
+
 ## Sage counsel
 
-
-> “As a sage of this present age, I stand to guide this assembly with clarity and resolve. I call upon you to refrain from entanglement with the false messiah, for his path is one of distortion and ruin. To follow him is to invite confusion, to fracture our unity, and to place our sacred tenets in direct opposition to their own foundations.
->
-> Such involvement would erode our commitment to honoring Israel and the Jewish people, twisting reverence into contradiction and loyalty into betrayal. It would sow division among us, corrupt discernment, and lead our cause away from truth into deception. In walking that road, we risk not only the loss of moral authority, but the forfeiture of divine favor and historical integrity.
->
-> Therefore, let wisdom prevail. Let us stand firm, unmoved by false light, and remain aligned with the principles that preserve our covenant.”
+> I recommend against engaging with the New Testament, as its content has significant potential to generate divisive interpretations and conceptual ambiguity within our community. The teachings contained herein risk creating theological inconsistencies and fragmenting our collective understanding. Therefore, I advise refraining from internalizing or disseminating the doctrines presented in this work.
 
 
 
