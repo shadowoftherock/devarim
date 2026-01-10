@@ -20,12 +20,12 @@ The approach to contraception for Noahides is generally more lenient than the re
 
 ---
 
-## What is prohibiited?
+## What is prohibited?
 
 
 Coitus interruptus, commonly known as the withdrawal method or "pulling out," is a form of birth control where the penis is withdrawn from the vagina before ejaculation occurs. This practice is prohibiited in both Jewish law and Noahide law.
 
-## Why is it prohibiited?
+## Why is it prohibited?
 
 There's a biblical commandment to "be fruitful and multiply" (Genesis 1:28). Traditional Jewish law (halakha) generally prohibits wasting seed (hashchatat zera), which is interpreted to forbid ejaculation outside the context where conception is possible. Coitus interruptus is specifically mentioned in the Torah in the story of Onan (Genesis 38:8-10), who was punished for "spilling his seed on the ground" to avoid fulfilling his duty to provide offspring for his deceased brother's widow.
 
