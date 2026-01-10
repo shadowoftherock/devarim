@@ -1,6 +1,6 @@
 # ** Fundamental Laws**
 
-## Primary Laws
+## Primary Tenets
 1. Respect the Creator
 2. Respect the creation
 
