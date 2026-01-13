@@ -36,7 +36,7 @@ This is why following HaShem includes respecting His chosen purpose for Israel.
 
 ### **3. HaShem Commands His People to Walk in His Ways**
 
-When Israel became a nation, the Lord made clear:
+When Israel became a nation, Hashem made clear:
 
 > **“Now therefore, if ye will obey my voice indeed, and keep my covenant, then ye shall be a peculiar treasure unto me above all people.”**
 > — *Exodus 19:5*
@@ -44,7 +44,7 @@ When Israel became a nation, the Lord made clear:
 Following HaShem is not merely believing in His existence—it is obeying His voice.
 And His voice has spoken concerning Israel, His chosen people:
 
-> **“For the LORD’s portion is His people; Jacob is the lot of His inheritance.”**
+> **“For Hashem’s portion is His people; Jacob is the lot of His inheritance.”**
 > — *Deuteronomy 32:9*
 
 If HaShem treasures them, how can we despise what He treasures?
@@ -67,7 +67,7 @@ All through the Old Testament, HaShem shows that **He keeps His promises**, even
 
 Jeremiah writes:
 
-> **“Thus saith the LORD; If my covenant be not with day and night… then may also my covenant with David my servant be broken.”**
+> **“Thus saith Hashem; If my covenant be not with day and night… then may also my covenant with David my servant be broken.”**
 > — *Jeremiah 33:25–26*
 
 HaShem ties His faithfulness to creation itself.
@@ -94,7 +94,7 @@ We have seen that HaShem’s call to bless the descendants of Abraham is woven d
 
 ### **6. HaShem Judges Nations Based on Their Treatment of Israel**
 
-In the book of the prophet Zechariah, the Lord gives a warning to all nations:
+In the book of the prophet Zechariah, Hashem gives a warning to all nations:
 
 > **“For he that toucheth you toucheth the apple of His eye.”**
 > — *Zechariah 2:8*
@@ -103,7 +103,7 @@ This is not poetry—it is divine reality.
 To touch Israel with harm is to poke your finger into HaShem’s own eye.
 To bless them is to honor His heart.
 
-Later, the Lord declares:
+Later, Hashem declares:
 
 > **“I will seek to destroy all the nations that come against Jerusalem.”**
 > — *Zechariah 12:9*
@@ -131,9 +131,9 @@ If HaShem remains faithful, then those who follow Him should honor what He honor
 
 ### **8. Following HaShem Means Walking in His Commands**
 
-The Lord commanded Israel:
+Hashem commanded Israel:
 
-> **“Hear, O Israel… thou shalt love the LORD thy HaShem with all thine heart.”**
+> **“Hear, O Israel… thou shalt love Hashem thy HaShem with all thine heart.”**
 > — *Deuteronomy 6:4–5*
 
 But He also commanded the nations around Israel to respect His chosen people.
@@ -149,10 +149,14 @@ The principle remains.
 
 Israel is not just a people—Israel is a message.
 
-The Lord said to them:
+Hashem said to them:
 
-> **“Ye are My witnesses, saith the LORD.”**
+> **“Ye are My witnesses, saith Hashem.”**
 > — *Isaiah 43:10*
+
+> ... I will faithfully give them their recompense, and I will make an everlasting covenant with them. Their offspring shall be known among the nations, and their descendants in the midst of the peoples; all who see them shall acknowledge them, that they are an offspring Hashem has blessed.
+> — *Isaiah 61:8-9*
+
 
 Through Israel:
 
@@ -180,7 +184,7 @@ Jeremiah boldly declares Israel’s unfaithfulness:
 > they have forsaken Me… and hewed them out broken cisterns.”**
 > — *Jeremiah 2:13*
 
-Israel forsook the Lord.
+Israel forsook Hashem.
 They worshiped idols.
 They broke the covenant again and again.
 
@@ -190,7 +194,7 @@ Yet even then, HaShem’s heart was not to destroy but to restore.
 
 Listen to His invitation:
 
-> **“Return, ye backsliding children, saith the LORD;
+> **“Return, ye backsliding children, saith Hashem;
 > for I am married unto you.”**
 > — *Jeremiah 3:14*
 
@@ -262,7 +266,7 @@ HaShem’s covenant stands even when Israel stumbles.
 
 ### **16. HaShem Promises to Restore Israel to Their Land**
 
-Jeremiah records the Lord saying:
+Jeremiah records Hashem saying:
 
 > **“I will bring again the captivity of My people Israel and Judah…
 > and I will cause them to return to the land that I gave to their fathers.”**
@@ -295,9 +299,9 @@ We have heard Jeremiah speak of HaShem’s unbreakable love and His promise to f
 
 ### **18. HaShem’s Mercy Is Rooted in His Own Name**
 
-Through Jeremiah, the Lord declares a powerful truth:
+Through Jeremiah, Hashem declares a powerful truth:
 
-> **“For I am with thee, saith the LORD, to save thee…
+> **“For I am with thee, saith Hashem, to save thee…
 > Though I make a full end of all nations… yet will I not make a full end of thee.”**
 > — *Jeremiah 30:11*
 
@@ -306,7 +310,7 @@ Nations rise and fall, kings come and go, but Israel endures because HaShem’s 
 
 ### **19. The Covenant Cannot Be Broken**
 
-Still in Jeremiah, the Lord gives an illustration that is impossible for men to change:
+Still in Jeremiah, Hashem gives an illustration that is impossible for men to change:
 
 > **“If ye can break My covenant of the day, and My covenant of the night…
 > then may also My covenant with David My servant be broken.”**
@@ -372,7 +376,7 @@ Jeremiah explains that Israel’s restoration includes an inner transformation:
 > — *Jeremiah 32:39*
 
 Israel will not only return to the land;
-they will return to the Lord with a renewed heart.
+they will return to Hashem with a renewed heart.
 
 ### **24. HaShem Turns Judgment Into Restoration**
 
